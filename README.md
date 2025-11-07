@@ -1,4 +1,4 @@
-# TRIGER-BOT-By-black noche-Valorant.
+# TRIGER-BOT-By- 人を信じよ、-Valorant.
 7WAAY SMURF
 GO TELECHARGE: https://www.autohotkey.com/
 HAD LFICHIER: al4Tyv7 7ALO M3A AUTOHOTKEY
