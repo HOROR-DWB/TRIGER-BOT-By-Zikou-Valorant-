@@ -1,4 +1,4 @@
-# TRIGER-BOT-By- 人を信じよ、-Valorant.
+# TRIGER-BOT-By- /@、-Valorant.
 7WAAY SMURF
 GO TELECHARGE autohotkey v1.1 : https://www.autohotkey.com/
 HAD LFICHIER: al4Tyv7 7ALO M3A AUTOHOTKEY
